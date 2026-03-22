@@ -1,4 +1,4 @@
-# Kuzey Sniper 2.0 - Vanity URL Hunter DISCORD \ CONTACT TO ME @drkuzey
+# Kuzey Sniper 2.0 - Vanity URL Hunter DISCORD \ CONTACT TO ME @kuzeyshu
 
 ## English Description
 
